@@ -5,7 +5,7 @@
 
 ### 🌌 CHAPITRE 1 : LE MODÈLE DE L'AQUARIUM
 L'univers est un flux fluide et connecté. Rien n'est fermé.
-![Le Vortex de l'Aquarium](https://upload.wikimedia.org/wikipedia/commons/thumb/1/10/Vortex-spherical-water-surface.jpg/800px-Vortex-spherical-water-surface.jpg)
+https://share.google/cNw98tBXVHFYFSAP6
 > *« L'énergie provient d'ailleurs, alimentant notre aquarium via des points de connexion universels. »*
 
 ---
